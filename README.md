@@ -1,1 +1,2 @@
 # mihle-potwana
+This webpage is about my dream travel destinations and the places I hope to visit in the future. It highlights my passion for travelling and exploring different cultures around the world. The webpage features destinations such as Zanzibar, Dubai, Bali, Paris, and Santorini, along with images of some of these beautiful locations. It also includes a list of my dream destinations and explains why travelling is important to me and how it can help me gain new experiences and create unforgettable memories.
